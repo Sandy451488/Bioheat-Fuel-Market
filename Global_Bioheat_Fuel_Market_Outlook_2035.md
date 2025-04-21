@@ -105,4 +105,4 @@ As infrastructure upgrades, regulatory mandates, and environmental awareness con
 
 ---
 
-*For more insights into emerging clean energy markets, visit us at **Market Research News***.
+*For more insights into emerging clean energy markets, visit us at [Transparency Market Research](https://www.transparencymarketresearch.com).
